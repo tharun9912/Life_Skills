@@ -37,7 +37,7 @@ Obstacles in my listening process:
 
 
 ## 5. Passive Communication:
-- I I switch to Passsive communication, when other person won't listen to you.
+- I switch to Passsive communication, when other person won't listen to me.
 - When person is sensitive and can't take  failure. 
 
 ## 6.Aggressive Communication:
@@ -51,7 +51,6 @@ Obstacles in my listening process:
 
 ## Q8 Assertive Communication: 
 - By respecting others opinions
-- Playing Cricket which makes removes stress and pressure.
 - Be clear and direct  
 - Practice confidence  
 - Prepare before discussions
